@@ -42,6 +42,10 @@ rising to meet the light
 and be all gone 
 during the night
 
+born from thought
+ready to walk
+the earth for a night
+
 neever been
 pulling to cops
 grey on grey
