@@ -8,7 +8,8 @@
 
 Description.
 Lil Pump x SmokePurrp Type Beat 2017 - Flex (Prod. By @HozayBeats) | Lil Pump Type Beat 2017
-https://www.youtube.com/watch?v=Peq4ZrBpSFo
+https://www.youtube.com/watch?v=Peq4ZrBpSFo - downloaded
+
 
 **Title:**  / **Featuring:** 
 
