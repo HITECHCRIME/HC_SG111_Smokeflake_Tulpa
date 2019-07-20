@@ -7,7 +7,8 @@
 ## Project Data
 
 Description.
-
+Lil Pump x SmokePurrp Type Beat 2017 - Flex (Prod. By @HozayBeats) | Lil Pump Type Beat 2017
+https://www.youtube.com/watch?v=Peq4ZrBpSFo
 
 **Title:**  / **Featuring:** 
 
@@ -17,6 +18,38 @@ Description.
 
 ```
 
+nirmita
+i come from the mind
+i come from the side
+i come from a world
+
+nirmita
+i come from the mind
+i come from the side
+i come from a world
+hold hold up not of blight this time
+
+nirmita
+step into continuum of the mindstream alight 
+citta-santāna for the blind
+
+my eyes are so wide
+my eyes not afraid
+lids like a tonna
+truth be like flood
+throughout and cuts on my spine
+rising to meet the light
+and be all gone 
+
+neever been
+pulling to cops
+grey on grey
+blending the walls
+painting the walls
+news flash 
+
+whole worlds of projection are yours
+you're a tulpa
 
 ```
 
