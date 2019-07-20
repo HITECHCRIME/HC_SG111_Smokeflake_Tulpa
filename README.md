@@ -40,6 +40,7 @@ truth be like flood
 throughout and cuts on my spine
 rising to meet the light
 and be all gone 
+during the night
 
 neever been
 pulling to cops
