@@ -46,6 +46,8 @@ born from thought
 ready to walk
 the earth for a night
 
+
+
 neever been
 pulling to cops
 grey on grey
@@ -54,6 +56,7 @@ painting the walls
 news flash 
 
 whole worlds of projection are yours
+your treachery
 you're a tulpa
 
 ```
