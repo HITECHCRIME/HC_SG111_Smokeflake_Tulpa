@@ -11,7 +11,7 @@ Lil Pump x SmokePurrp Type Beat 2017 - Flex (Prod. By @HozayBeats) | Lil Pump Ty
 https://www.youtube.com/watch?v=Peq4ZrBpSFo - downloaded
 
 
-**Title:**  / **Featuring:** 
+**Title:** Smokeflake Tulpa / **Featuring:** MOTHNODE
 
 **Production:**  / **Lyrics:** 
 
