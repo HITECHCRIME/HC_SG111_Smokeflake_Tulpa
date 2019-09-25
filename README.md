@@ -2,7 +2,7 @@
 
 # MOTHNODE_ Smokeflake Tulpa
 
-**Listen now:** x
+**Listen now:**
 
 ## Project Data
 
@@ -13,7 +13,7 @@ https://www.youtube.com/watch?v=Peq4ZrBpSFo - downloaded
 
 **Title:** Smokeflake Tulpa / **Featuring:** MOTHNODE
 
-**Production:**  / **Lyrics:** 
+**Production:** Hozay / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
